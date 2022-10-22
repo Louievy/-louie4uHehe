@@ -1,2 +1,4 @@
-# -louie4uHehe
-This is Just a Simple Website Just for Fun
+HI CRUSH GANDA MO PALAGI <3
+
+
+-Louie
